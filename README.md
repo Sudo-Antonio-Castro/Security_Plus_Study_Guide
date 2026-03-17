@@ -1,1 +1,0 @@
-# Security_Study_Guide
